@@ -1,9 +1,9 @@
-# BOTZ38
+# MyBot
 
-Youtube: RIMURUBOTZ
+whatsapp : 082114078945
 
-Instagram: RIMURUBOTZ
 
-Whatsapp: 082347260729
 
-Notes: Tap Star nya donk bang😅
+
+
+
